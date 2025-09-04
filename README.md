@@ -1,12 +1,12 @@
 ## Hi there I'm Adrik
 
-Actualmente estoy estudiando **Ciencias Genomicas** en la UNAM.
+I'm study **Ciencias Genomicas** en la UNAM.
 
-Paso mi tiempo leyendo, escuchando musica y en internet...
+I use my time reading books, listening to music and surf in web...
 
-- 🤔 Me interesa la programacion, pero soy nuevo, cualquier sugerencia es bienvenida.
+- 🤔 I'm intersting in programming, but I'm a new herb, I would apreciate any advice.
 
-- Me interesan los videojuegos, sobre todo Pokemon y eso...
+- I really love videogames, Pokemon over all and somethings like that...
 
 
 
